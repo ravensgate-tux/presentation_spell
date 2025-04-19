@@ -63,7 +63,6 @@ Speak these words during your main work, while focusing on the image of the chos
 ## 参考資料
 
 - [Amy Cuddy TED Talk](https://www.youtube.com/watch?v=H805EbLS4AY)
-- [Jason Miller: Strategic Sorcery](https://www.strategicsorcery.net/)
 
 ---
 
