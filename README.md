@@ -50,7 +50,7 @@ Speak these words during your main work, while focusing on the image of the chos
      - 私の言葉は届く
 
 4. **パワーポーズを2分**：剣を構えて「さあ来い」という堂々とした姿勢を取る
-5. **終了句**：儀式文の中で "Fiat! Fiat! Fiat!" を唱え、最後に IAOM（イー・アー・オーム）を力強く発する
+5. **終了句**：最後に "Fiat! Fiat! Fiat!" と力強く唱え、IAOM（イー・アー・オーム）で締めくくる
 6. **クローズ**：深呼吸と感謝で儀式を閉じる
 
 ## 解説と理論背景
