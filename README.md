@@ -11,7 +11,7 @@
 
 - **象徴**：剣のペイジのタロットカード
 
-<img src="swords.jpg" width="300">
+<img src="swords-6.jpg" width="300">
 
 ## 儀式構造
 
