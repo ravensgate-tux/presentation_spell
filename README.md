@@ -66,4 +66,5 @@ Speak these words during your main work, while focusing on the image of the chos
 
 ---
 
-© 2025 ravensgate-tux / Creative Commons Attribution 4.0 International (CC BY 4.0)
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
